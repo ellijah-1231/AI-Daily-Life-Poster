@@ -34,7 +34,7 @@ The purpose of this poster is to visually communicate the importance of Artifici
 This poster was created as part of a Graphic Design Internship to demonstrate skills in visual communication, layout design, and creative design.
 
 ## Author
-**Ellie**
+**Ellijah**
 B.Tech Student | Graphic Design Intern | Canva Designer
 
 ## Poster Preview
